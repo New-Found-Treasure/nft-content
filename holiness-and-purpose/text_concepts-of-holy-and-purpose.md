@@ -7,7 +7,12 @@ Today I would like you to put on your thinking caps. Let's take a journey togeth
 Definition of Holy  
 Set apart from the rest for a special function]
 
-I understand that the first thing you would to your mind is 'being holy' is being ceremonially or morally clean. And yes that is true. However, this cleanliness is in the context of the root of the meaning for being holy, which has to do with the purpose a thing is set part. 
+# Scratching The Surface of Holy 
+Generally 'holy' is hugely associated with is being ceremonially or morally clean. And yes that is quite correct. However, this 
+being ceremonially or morally clean is seen in the context of the root meaning of holy. And you know what that is? Yes you got. It is "Set apart from the rest for a special function". The meaning of Holy is tied to purpose. What makes something holy is it adherence its purpose and the working of that purpose.
+
+
+cleanliness is in the context of the root of the meaning for being holy, which has to do with the purpose a thing is set part. 
 
 So what would make something unclean is a thing doing something that is not its purpose. 
 So also corruption should be seen in the context of dedicated purpose. So that to be corrupted is the condition or affinity to go off purpose and participate in an sanctioned purpose. 
