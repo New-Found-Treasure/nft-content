@@ -15,3 +15,8 @@ Therefore in this sense, something becomes unclean, or ruined if it is diverted 
  
 So in turn we can also look at the concept of "Corruption" in the context meaning of Holy. TThen "Corruption" would be 
 the process by which a function is changed from its original state through erroneous or debased, or abusive application. So associating holiness only to a perceived show of moral virtue when in actual sense you have abandoned your function, or your are abusing your function is in error. Someone is holy if one is operating according to one's intend function. So instead of saying I'm holy say this is my function and I'm walking in it.
+
+# Deeper Dive On Holiness
+look at Paul in Romans talking about each one of us knowing level of faith
+
+The jesus on for this purpose I came into the world to save the lost
