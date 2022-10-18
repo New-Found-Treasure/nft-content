@@ -20,7 +20,6 @@ the process by which a function is changed from its original state through erron
 
 Someone is holy if one is operating according to one's intend function. What is done outside must march what is in the heart. The walk and talk must be in harmony otherwise it is like what Prophet Isaiah said,"These people draw near to Me with their mouths and honor Me with their lips, but their hearts are far from Me. Their worship of Me is but rules taught by men." (Isaiah 29:13)
 
-So associating holiness only to a perceived show of moral virtue when in actual sense you have abandoned your function, or your are abusing your function is in error.
 
 # Deeper Dive On Holiness
 
