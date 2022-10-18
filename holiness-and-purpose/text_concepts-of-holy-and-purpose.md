@@ -34,14 +34,9 @@ Very person enters this world with a purpose. It motivates the aims of your life
 2. **Hope answers the questions**: _Where do I belong? And Where Am I Going?_ We want to know that our lives are safe and our futures secure. A hope that ensures the future. We find that the work we do in our community brings us a sense of belonging and a confident direction in life.
 3. **Love answers the question**: _Who am I?_ We want to be valued as persons and to be accepted as we are. It is in the service of our Master where value and self-worth is found. We are called as children of God.
 
+## Your Life's purpose is Contribution
+We are made to serve. We are like the various parts of a human body. Each part gets its meaning from the body as a whole, not the other way around. The body we're talking about is Christ's body of chosen people. We have seen that holiness is on all the levels of relationship and service given to an individual. So there is no picking and choosing. Each of us finds our meaning and function as a part of his body. But as a chopped-off finger or cut-off toe we wouldn't amount to much, would we? So since we find ourselves fashioned into all these excellently formed and marvelously functioning parts in Christ's body, let's just go ahead and be what we were made to be, without enviously or pridefully comparing ourselves with each other, or trying to be something we aren't.
 
-Your purpose is unique to you, "and what you identify as your path will be different from others." "What’s more, your purpose can actually shift and change throughout life in response to the evolving priorities and fluctuations of your own experiences." Problems start when self begins to dominate to the place of selfless service. In all the aspects your purpose you will notice that your gifts are serve selflessly. And you find fulfillment in the act of selfless service. This is true even in your relationship with the Father. Your purpose is meant for service not for self serving motivations.
+Some people feel hesitant about pursuing their life purpose because they worry that it sounds like a self-serving or selfish quest. However, true purpose is about recognizing your own gifts and using them to contribute to the world—whether those gifts are playing beautiful music for others to enjoy, helping friends solve problems, or simply bringing more joy into the lives of those around you.
+“genuine purpose points to the end of a self-absorbed, self-serving relationship to life.” When your authentic purpose becomes clear, you will be able to share it with the whole world.
 
-## Pitfalls To Avoid
-The thinking that self serving holiness We must misinterpret yourselves as people who are bringing this goodness to God. No, God brings it all to you. The only accurate way to understand ourselves is by what God is and by what he does for us, not by what we are and what we do for him. In this way we are like the various parts of a human body. Each part gets its meaning from the body as a whole, not the other way around. The body we're talking about is Christ's body of chosen people. Each of us finds our meaning and function as a part of his body. But as a chopped-off finger or cut-off toe we wouldn't amount to much, would we? So since we find ourselves fashioned into all these excellently formed and marvelously functioning parts in Christ's body, let's just go ahead and be what we were made to be, without enviously or pridefully comparing ourselves with each other, or trying to be something we aren't.
-
-
-
-look at Paul in Romans talking about each one of us knowing level of faith (Romans 12:4-8)
-
-The jesus on for this purpose I came into the world to save the lost (Luke 19:10; John 6:38)
