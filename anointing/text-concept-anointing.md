@@ -1,5 +1,8 @@
 # Anointing
 
+## Introduction
+
+In our last lesson we look at how purpose and worship are essentials of what it means to be holy. In this lesson, we look at at the concept of Anoint. And find out how it is makes you is succeeds in your purpose. 
 
 ## Background (Etymology) of Anoint:
 Let's take a journey together in the world of the scriptures and explore the concept of "Anoint". We find that upon the a word search, the word Anoint (Anointing, Anointed) appears 126 times in the Old Testament and 19 times in the New Testament. Anoint is translated from a Hebrew word "Maw-shakh"in the Old Testament" and the greek word "Chrio" in the New Testament. 
@@ -15,6 +18,8 @@ The three main offices that required the rite of inauguration on by smearing of 
 2. High Priests
 3. The King. 
 
+
+## Beneath The Surface
 
 
 
