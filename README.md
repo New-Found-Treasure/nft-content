@@ -1,4 +1,6 @@
-# nft-content
+# About New Found Treasure 
 
-messages. teachings, themes for church platform  
-Here you will find all the works that go to the programs of the church platform and other relevant platforms.
+
+This is where you find the teachings, updates and thematic direction for New Found Treasure Community Platform.  
+
+New Found Treasure is a community that provides a space as well as information, tips on how to improve one's lifestyle.

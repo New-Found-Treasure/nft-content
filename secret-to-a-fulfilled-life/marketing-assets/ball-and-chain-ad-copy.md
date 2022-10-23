@@ -10,8 +10,8 @@
 ## The Answer:
 
 - You can discover the answer to your problem.
-- This November New Found Treasure presents The Ground-breaking, "The Secret To A Fulfilled Life".
-- How To Your True Purpose.
+- This November New Found Treasure presents The Ground-breaking, _"The Secret To A Fulfilled Life"_.
+- How To Find Your True Purpose.
 - How to enhance Your Purpose For Ultimate Growth And Results.
 - How to Solve the conflicts In Your Purpose. How calm to the conflicts within you surrounding your purpose.
 
