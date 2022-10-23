@@ -12,10 +12,19 @@ Anoint is:
 
 _"To smear or rub with or oil as a process of setting a thing apart for a specific purpose of office"_
 
+- If holy is being being set apart for a purpose. Them to anoint is setting up that purpose.
+- Holy and anointing are like hand and glove
+- The two are the purview of the Master to serve his will. 
+
 This is making appointment orders for person to service in specific place or office. The gifts a person are appointed to operate in that specific function. The anointing does for that.
 
-- It was meant for tabernacle duties. 
-- It made things holy 
+- It was meant for tabernacle or temple duties to make things. 
+- It is made to give purpose to things. Once done that thing can produce fruitfully in that purpose.
+- The work of purpose is the purview of the master. And it is found in Christ or the pattern the tabernacle. It makes rich.
+- So I infer that such to have that power is something sort after. And the buying and selling of such power is needed in the world. 
+- This can be used to create all sorts of things.
+- So the angle of the anointing is turning purpose for self-service issues or turning purpose to service the Master's will.
+- Cause whomever has this power it will surely produce.
 
 
 ## What Makes Up The Anointing:
