@@ -21,13 +21,12 @@
 - Here is what you need to do to break the ball and chain
 - Register and join on 20 November and get started on your journey to self-realization.
 
-
 # Speaker/lead Endorsement Advert:
 
-Join me this november as we begin a community about Jesus like never before. 
+Join me this november as we begin a community about Jesus like never before.  
 We will start building community built on strong relationship values where you as an individual matters the most and are valued the most. It is who the master loves and who love dearly
 
-so we start this is community with foundation building working: 
+so we start this is community with foundation building working:
+
 - Please go through 3-week the 3 part teachings to building your foundation strong and right.
 - Then we will activate our foundation in the 4th week with a live service where I will personally engage with you to activate your purpose.
-
