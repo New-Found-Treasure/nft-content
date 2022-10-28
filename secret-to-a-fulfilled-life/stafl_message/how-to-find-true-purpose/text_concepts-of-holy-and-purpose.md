@@ -24,7 +24,7 @@ Therefore, we cannot separate purpose, worship, and moral cleanliness as are the
 
 ## Deep Dive in Purpose
 
-Very person enters this world with a purpose. It motivates the aims of your life. Purpose guides life's decisions, influences behavior, shapes goals, offers a sense of direction, and creates meaning. Your purpose is made up of your gifts and how they function to serve in the home, in your community and in the kingdom of our Father. For example, when Jesus the Master chose the fishermen: Peter, John, James, and Andrew, appointed them as Apostles, and called them as Fishers of men.\` It was in line with the same gifts they used at home, in their community, and were now to be used in the Master's service.
+Very person enters this world with a purpose. It motivates the aims of your life. Purpose guides life's decisions, influences behavior, shapes goals, offers a sense of direction, and creates meaning. Your purpose is made up of your gifts and how they function to serve in the home, in your community and in the kingdom of our Father. For example, when Jesus the Master chose the fishermen: Peter, John, James, and Andrew, appointed them as Apostles, and called them as Fishers of men.\` It was in line with the same gifts they used at home, in their community(at home), and were now to be used in the Master's service.
 
 **There is a harmony to everyone's purpose**. It answers the three essential qualities that make life worth living\*:
 
