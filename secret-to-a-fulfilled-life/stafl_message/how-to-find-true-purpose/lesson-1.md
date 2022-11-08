@@ -1,7 +1,6 @@
-
 # Lesson 1: At Your Service
 
-_[visual device: the apron]_
+_\[visual device: the apron\]_
 
 ## What Is True Purpose?
 
@@ -12,6 +11,7 @@ Very person enters this world with a purpose. It motivates the aims of your life
 We are like the various parts of a human body. Each part gets its meaning from the body as a whole, not the other way around. The body we're talking about is Christ's body of chosen people. Each of us finds our meaning and function as a part of his body. But as a chopped-off finger or cut-off toe we wouldn't amount to much. So since we find ourselves fashioned into all these excellently formed and marvelously functioning parts in Christ's body, let's just go ahead and be what we were made to be, without enviously or pridefully comparing ourselves with each other, or trying to be something we aren't.!
 
 ## Your Life's purpose is Contribution
+
 Some people feel hesitant about pursuing their life purpose because they worry that it sounds like a self-serving or selfish quest. However, true purpose is about recognizing your own gifts and using them to contribute to the world—whether those gifts are playing beautiful music for others to enjoy, helping friends solve problems, or simply bringing more joy into the lives of those around you.
 
 “genuine purpose points to the end of a self-absorbed, self-serving relationship to life.” When your authentic purpose becomes clear, you will be able to share it with the whole world.^
@@ -22,16 +22,15 @@ The harmony of Purpose here expressed on relationship:
 
 ### Relationships Hierarchy:
 
-- family and home, 
-- community and work, 
+- family and home,
+- community and work,
 - country and allegiance
-
 
 ### Quintessence of Purpose
 
 True purpose answers the three essential qualities that make life worth living:
 
-_"Faith, Hope, Love"_ 
+_"Faith, Hope, Love"_
 
 **Faith answers the questions**: _"Why am I here and When do I feel fulfilled?"_ We want our lives to count for something! We want a significant and meaningful Life. It is speaks of relationship. It is at the home or our heart where our faith resides. Just as we have a family. We are to have a relationship with our Father.
 
@@ -39,9 +38,9 @@ _"Faith, Hope, Love"_
 
 **Love answers the question**: _Who am I?_ We want to be valued as persons and to be accepted as we are. It is in the service of our Master where value and self-worth is found. We are called to be children of God.
 
+## Sidebar: _"Purpose is in the Bible"_
 
-## Sidebar: _"Purpose is in the Bible"_  
-We find the equivalent of _"purpose"_ in the bible is the word _"Holy"_. 
+We find the equivalent of _"purpose"_ in the bible is the word _"Holy"_.
 
 (- LIKE REALLY. - YES REALLY. - HOW?)
 
