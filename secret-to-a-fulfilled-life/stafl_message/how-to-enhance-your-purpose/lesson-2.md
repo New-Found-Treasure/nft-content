@@ -6,7 +6,7 @@ The key to effectively grow and produce in your purpose is:
 
 
 UNDERSTANDING YOUR AUTHORITY
-The using of your gifts and skills to achieve things in your purpose is  the authority of your purpose.  
+The using of your gifts and skills to achieve things in your purpose is the authority of your purpose.  
 
 The authority sets up your life's work. It acquires all that is needed for you to operate in purpose. That is the tools and place of operations for your life's work. And it activates you into your purpose. 
 
